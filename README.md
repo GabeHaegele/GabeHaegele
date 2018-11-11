@@ -1,2 +1,0 @@
-# GabeHaegele
-My home page
